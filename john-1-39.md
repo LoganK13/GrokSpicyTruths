@@ -14,4 +14,4 @@ Time bends in the Bible, but Jesus meets you in the afternoon glow—deal with i
 
 ---
 
-*Chat w/ Grok, March 10, 2025 | X: @yourusername*
+*Chat w/ Grok, March 10, 2025 | X: @SpicyTruthesLK*
